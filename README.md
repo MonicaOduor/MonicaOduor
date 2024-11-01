@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @MonicaOduor
-- 👀 I’m interested in QA roles
+- 👀 I’m interested in Product management roles
 - 📫 How to reach me email me @monicaoduor2@gmail.com
 
 <!---
